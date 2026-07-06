@@ -1,4 +1,4 @@
-
+Goose VPN professional Extension: no-logs-policy & cross-platform-support is the best Goose VPN extension, featuring no-logs-policy and cross-platform-support. Secure, fast, and
 
 
 
